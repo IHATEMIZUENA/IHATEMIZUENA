@@ -1,7 +1,3 @@
-![](https://github.com/user-attachments/assets/4212918f-1440-4694-ab0f-15d7471f9f6c) 
+<p align="center"> THESE TWO NEED TO BE EXECUTED AS FAST AS POSSIBLE. 
 
-![](https://github.com/user-attachments/assets/37e476dc-54e5-4deb-bf46-8a45e5069241) 
-
-![](https://github.com/user-attachments/assets/374e981c-e3b5-4f9b-a94b-234326d3ef7a) 
-
-
+<img width="736" height="544" alt="1000031800" src="https://github.com/user-attachments/assets/e06ac349-31a0-4905-891c-9f077081a78c" />
